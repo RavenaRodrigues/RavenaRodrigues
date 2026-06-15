@@ -1,6 +1,6 @@
 # Sobre mim
 
-## Graduanda em Licenciatura em Computação pelo Instituto Federal do Piauí - Campus Teresina Zona Sul, atualmente no 3º período. Apaixonnada por tecnologiae educação e estou apreendendo Java🧚‍♀️💫.
+## Graduanda em Licenciatura em Computação pelo Instituto Federal do Piauí - Campus Teresina Zona Sul, atualmente no 3º período. Apaixonada por tecnologiae educação e estou apreendendo Java🧚‍♀️💫.
 
 ## Linguagens
 
