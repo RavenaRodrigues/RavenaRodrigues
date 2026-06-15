@@ -1,6 +1,6 @@
 # Sobre mim
 
-## Cursando atualmente Licenciatura em Computação no Instituto Federal do Piauí Campus Teresina Zona Sul no terceiro período apreendendo Java🧚‍♀️💫.
+## Cursando Licenciatura em Computação no Instituto Federal do Piauí Campus Teresina Zona Sul no terceiro período apreendendo Java🧚‍♀️💫.
 
 ## Linguagens
 
