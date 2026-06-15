@@ -12,7 +12,7 @@
 
 ### Aprecio um bom café, boa música e conversas pautadas em inovação e uso da tecnologia para transformar a educação, tendo em vista que sou da licenciatura☕🎼 💻.
 
-### Em busca do primeiro estagio na área da computação👩‍🏫.
+### Em busca do primeiro estágio na área da computação👩‍🏫.
 
 
 
